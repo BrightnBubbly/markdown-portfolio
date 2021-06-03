@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Cute Squirrel Hugging Tiny Teddy Bear](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/jill-the-squirrel-animals-to-follow-on-instagram-1568303268.jpg?crop=0.993xw:0.993xh;0.00692xw,0.00519xh&resize=768:*)
