@@ -1,1 +1,15 @@
-Replace this with a list of your favorite things.
+These are a few of my favorite things:
+- raindrops on roses
+- whiskers on kittens
+- bright copper kettles
+- warm woolen mittens
+- brown paper packagaes tied up with strings
+- cream colored ponies
+- crisp apple srudels
+- door bells
+- sleigh bells
+- schnitzel with noodles
+- wild geese that fly with the moon on their wings
+- girls in white dresses with blue satin sashes
+- snowflakes that stay on my nose and eyelashes
+- silver white winters that melt into springs
